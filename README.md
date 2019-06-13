@@ -24,3 +24,5 @@ The reasons why I want to quit my job or move to another one but I feel it is ha
 3rd, I don’t know what people will look at my effort worthy. Shortly, I don’t know if I can MOVE to another company. And maybe I can’t because I don’t have enough skills.
 
 ***I get those thoughts***
+
+rsf;ljslkdfjksk
